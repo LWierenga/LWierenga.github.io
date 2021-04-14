@@ -1,1 +1,1 @@
-# LWierenga.github.io
+# trigconcepts.github.io
